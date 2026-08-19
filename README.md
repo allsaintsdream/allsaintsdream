@@ -1,6 +1,6 @@
 <div align="center">
   
-  skibidi toilet
+
   
 <img width="300" height="232" alt="elise gimmick" src="https://github.com/user-attachments/assets/815d7139-b470-40d3-a9d0-b4970d9115cf" />
 
