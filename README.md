@@ -8,6 +8,6 @@
 
 ; semi-active on pt , sign ata and strawp !
 
-nonverbal at times
+may b nonverbal at times, even with friends
 
 </div>
