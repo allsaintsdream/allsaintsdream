@@ -10,6 +10,6 @@
 
 may b nonverbal at times, even with friends
 
-[strawpage](https://artificiality.straw.page/) . [atabook](https://dreamingdreame.atabook.org/)
+[strawpage](https://artificialrain.straw.page/) . [atabook](https://dreamingdreame.atabook.org/)
 
 </div>
