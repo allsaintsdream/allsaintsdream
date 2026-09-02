@@ -11,6 +11,4 @@
 
 ; semi-active on pt
 
-may b nonverbal at times, even with friends (please dont take this negatively esp if youre my friend! my mind gets overloaded and goes blank really easily and it's just much better and relieving for me if i dont chat for some time, but i always manage to recover later on!!)
-
 </div>
