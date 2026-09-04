@@ -7,7 +7,7 @@
 </div>
 
 
-[strawpage](https://artificialrain.straw.page/) ♡ [atabook](https://dreamingdreame.atabook.org/)
+[strawpage](https://artificialrain.straw.page/) ♡ [atabook](https://dreamingdreame.atabook.org/) ♡ [pronouns page](https://pronouns.cc/@dreamingofrain)
 
 ; semi-active on pt
 
