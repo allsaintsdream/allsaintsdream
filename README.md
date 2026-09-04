@@ -9,6 +9,6 @@
 
 [strawpage](https://artificialrain.straw.page/) ♡ [atabook](https://dreamingdreame.atabook.org/) ♡ [pronouns page](https://pronouns.cc/@dreamingofrain)
 
-; semi-active on pt , suspected anxiety disorder and trying my best to manage
+; semi-active on pt , busy with school and life in general
 
 </div>
